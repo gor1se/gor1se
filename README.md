@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gor1se
-- 👀 I’m interested in improving Education
+- 👀 I’m interested in improving Education & Mobility
 - 🌱 I’m currently learning Webdesign and Webdevelopment
 - 💞️ I’m looking to collaborate on projects for the common good
 - 📫 How to reach me: @r1seic on Twitter
